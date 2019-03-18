@@ -1,0 +1,2 @@
+# UNO-Simplified
+S
